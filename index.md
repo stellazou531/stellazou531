@@ -12,7 +12,8 @@
 ### 2017
 1.Outpatience Service Design
 
-2.Jianghan District City Planning & Old Architecture Complex Protection
+2.Jianghan District City Re-Planning & Old Architecture Complex Protection
+（100yr Local Jewllery Store Brand Series)
 
 ### 2016
 
